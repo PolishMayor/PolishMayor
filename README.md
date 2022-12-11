@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PolishMayor
 - 👀 I’m interested in books,manga,anime,art...
-- 🌱 I’m currently learning how to draw and write.
+- 🌱 I’m currently learning nothing.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...[you can't I'm introvert]
 
